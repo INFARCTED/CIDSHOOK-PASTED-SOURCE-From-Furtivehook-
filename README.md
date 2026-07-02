@@ -1,3 +1,6 @@
+[https://i.imgur.com/VceoXhv.png](https://i.imgur.com/VceoXhv.png)
+[https://i.imgur.com/VhbIy7Q.png](https://i.imgur.com/VhbIy7Q.png)
+
 This retard uses sources from Furtive / Nbot and repackages them to make it look like they're his own. Good news: you can now do the same.
 
 He also uses some old Lerg sources, but I don't have them :/ But basically, he didn't do any of it himself, and now you can post videos on your YouTube channel and have fun pretending to be “CIDS hackers”!!
