@@ -10,5 +10,5 @@ discord (cids) don't get scam by him :
 kv.bin
 
 
-By the way, Extinct seemed pretty surprised to find out that I paid him for some code, considering he's never sold me any code XD
+By the way, [CENSORED] seemed pretty surprised to find out that I paid him for some code, considering he's never sold me any code XD
 It's a way of saying that this information is completely false...
