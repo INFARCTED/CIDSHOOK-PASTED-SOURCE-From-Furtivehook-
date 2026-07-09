@@ -12,3 +12,12 @@ kv.bin
 
 By the way, [CENSORED] seemed pretty surprised to find out that I paid him for some code, considering he's never sold me any code XD
 It's a way of saying that this information is completely false...
+
+
+BTW (SKID LIST):
+- CIDS (kv.bin)
+- Ruthy (@521913315333767188)
+
+That little bitch is having fun trying to leak my private info.
+
+First of all, that info hasn't been accurate for a very long time now. And second, the photos aren't even of me, lol. But nice try lmfao.
