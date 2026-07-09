@@ -21,3 +21,9 @@ BTW (SKID LIST):
 That little bitch is having fun trying to leak my private info.
 
 First of all, that info hasn't been accurate for a very long time now. And second, the photos aren't even of me, lol. But nice try lmfao.
+
+At the same time, after proving that everything they do or say is just bullshit/lies, that's their last resort XD
+
+By the way, my little CIDS, we're going to take good care of you :)
+
+Oh, and thanks for the 45€—you didn't crack anything; you just bought a key like everyone else
