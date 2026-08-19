@@ -1,5 +1,5 @@
 
-![Hey cids](assets/Get rekt.png)
+[Hey cids](assets/Get rekt.png)
 
 [https://i.imgur.com/VceoXhv.png](https://i.imgur.com/VceoXhv.png)
 [https://i.imgur.com/VhbIy7Q.png](https://i.imgur.com/VhbIy7Q.png)
