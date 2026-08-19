@@ -2,8 +2,13 @@
   <img src="assets/Getrekt.png" alt="Hey cids" width="800">
 </p>
 
-[https://i.imgur.com/VceoXhv.png](https://i.imgur.com/VceoXhv.png)
-[https://i.imgur.com/VhbIy7Q.png](https://i.imgur.com/VhbIy7Q.png)
+<p align="center">
+  <img src="https://i.imgur.com/VceoXhv.png" alt="Hey cids" width="800">
+</p>
+
+<p align="center">
+  <img src="https://i.imgur.com/VhbIy7Q.png" alt="Hey cids" width="800">
+</p>
 
 This retard uses sources from Furtive / Nbot and repackages them to make it look like they're his own. Good news: you can now do the same.
 
