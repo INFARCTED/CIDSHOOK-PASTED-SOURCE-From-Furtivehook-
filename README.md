@@ -1,5 +1,6 @@
-
-[Hey cids](assets/Getrekt.png)
+<p align="center">
+  <img src="assets/Getrekt.png" alt="Hey cids" width="800">
+</p>
 
 [https://i.imgur.com/VceoXhv.png](https://i.imgur.com/VceoXhv.png)
 [https://i.imgur.com/VhbIy7Q.png](https://i.imgur.com/VhbIy7Q.png)
